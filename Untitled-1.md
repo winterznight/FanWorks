@@ -1,0 +1,62 @@
+<p><p><b><a href="https://archiveofourown.org/users/wintersnight/pseuds/wintersnight">Wintersnight</a></b> on AO3 <br><br>|
+<ul><li><a href="https://archiveofourown.org/series/1465870"><b>The Fracture Verse and other Things</b></a> | <a href=”https://iphoenixrising.tumblr.com/post/187109852972/babe-downloaded-fracture-as-a-pdf-and-got>Fracture, a whole ass book</a> | <a href="https://archiveofourown.org/works/5156417"><b>Fracture main story on Ao3</b></a> | <a href="https://poison-basil.tumblr.com/post/164615600140/iphoenixrising-fractured-tim-d-thanks-for">Chapter 1 Fanart from poison-basil<3</a> | <a href="https://poison-basil.tumblr.com/post/165086934095/via-whirlybird-by-kerryharnett-3d-scene-red">Then babe made a whirlybird</a>
+<li><a href="https://archiveofourown.org/works/20382547/chapters/48342265">Destroyed on Ao3</a> | On Tumblr:<a href="http://iphoenixrising.tumblr.com/post/138448102402/from-the-fractured-verse-destroyed">One</a> | <a href="http://iphoenixrising.tumblr.com/post/139459037542/from-the-fractured-verse-destroyed-part-ii">Two</a> | <a href="http://iphoenixrising.tumblr.com/post/139459037542/from-the-fractured-verse-destroyed-part-ii">Three</a>|<a href="https://iphoenixrising.tumblr.com/post/173400807197/oh-god-i-just-reread-destroyed-for-like-the">After-fic HC</a>|<a href="https://iphoenixrising.tumblr.com/post/173850761867/tbh-in-the-far-future-if-u-ever-write-a-destroyed">Tim Stays</a> | <a href="https://iphoenixrising.tumblr.com/post/175489614822/hiya-babe-i-love-your-writing-and-i-have-a-quick">Interest</a> (see also "BatFam") </li>
+<li>Spinoff ficlets from the Fracture verse:<a href="https://archiveofourown.org/works/20410015">Dr!Tim meets Fracture!Tim</a> | <a href="https://archiveofourown.org/works/20410072">Convergence</a></li>
+<li>Ficlets in the Fracture Verse<a href="https://archiveofourown.org/works/20410138">Robin’s Redemption</a> | <a href="https://archiveofourown.org/works/20472185">Fracture What-If: BatDad </a> | <a href="https://archiveofourown.org/works/20410231">Time Fuckery</a>|<a href="https://archiveofourown.org/works/20472323">Christening </a>|<a href="https://archiveofourown.org/works/20409472">Night Sky</a> | <a href=“https://iphoenixrising.tumblr.com/post/628489615725215744/babe-first-off-i-hope-youre-doing-well-and”>how Fracture DickJay happened</a> | <a href=”https://iphoenixrising.tumblr.com/post/617152892890202112/i-had-dream-about-dick-and-jay-travel-time-to-the”>This sad deviation ask tw: suicide attempt</a></li>
+</ul>
+
+<ul><b>No Home for Dead Birds: </b><ul><li><a href="https://iphoenixrising.tumblr.com/tagged/no%20home%20for%20dead%20birds">on Tumblr</a> | <a href="https://archiveofourown.org/works/9618515">on AO3</a> | <a href="https://iphoenixrising.tumblr.com/post/148614030032/no-home-for-dead-birds-just-killed-me-its-so">background</a> | <a href="https://iphoenixrising.tumblr.com/post/152338802422/hey-brilliant-writer-as-always-you-leave-me">DickTim: their beginning</a> | <a href="https://iphoenixrising.tumblr.com/post/168847242307/i-was-re-reading-nhfdb-again-and-when-i-got-to">Dick leaving Tim something (HC)</a> | <a href="https://iphoenixrising.tumblr.com/post/149399442947/ficlets-for-over-100-followers">"Two Years Ago" (for 100 followers!)</a> | <a href="https://iphoenixrising.tumblr.com/post/145667194272/no-home-for-dead-birds">One</a> |
+<a href="https://iphoenixrising.tumblr.com/post/145973386097/please-give-us-a-slightly-happier-one-shot-because">Slightly Happier</a> |
+<a href="http://iphoenixrising.tumblr.com/post/145710243087/no-home-for-dead-birds-cont">Two</a> </li>
+<li><b>Home for Tiny Birds (with Tiny!Tim!):</b> <a href="https://iphoenixrising.tumblr.com/post/178712882492/thinking-about-the-idea-with-no-home-for-dead#">NHFDB!Tim </a> visits
+<a href="https://iphoenixrising.tumblr.com/post/178433930912/hey-i-have-been-rereading-a-bunch-of-your-stories">Tiny!Tim</a> (see also "Tiny!Tim UA" and "Convergence")</li><ul>
+
+<b>DC AOB AUs</b><br><b>AOB Attempt</b>(DickTimJay; alpha!DickJay, omega!Tim):</p>
+<ul><li><b>the Beginning:</b>
+<a href="http://iphoenixrising.tumblr.com/post/153116214782/its-a-bit-weird-to-ask-this-here-since-i-love">One</a> |
+<a href="https://iphoenixrising.tumblr.com/post/153158020017/batfam-aob-attempt-ii">Two</a> |
+<a href="https://iphoenixrising.tumblr.com/post/153410038232/batfam-aob-attempt-iii">Three</a> |
+<a href="https://iphoenixrising.tumblr.com/post/158212623927/batfam-aob-attempt-4">Four</a> |
+<a href="https://iphoenixrising.tumblr.com/post/162887712072/batfam-aob-attempt-part-5">Five</a> (&amp;
+<a href="https://iphoenixrising.tumblr.com/post/161451004452/jaytimdick-abo-anon-here-wondering-if-youll-do-a">Fallout</a> &amp;
+<a href="https://iphoenixrising.tumblr.com/post/171815219312/omegatim-short-the-talk">Follow Up</a>) |
+<a href="https://iphoenixrising.tumblr.com/post/163927315172/batfam-aob-attempt-6-the-demons-head">Six: The Demon’s Head <b></b></a>TW:mentions of assult |
+<a href="https://iphoenixrising.tumblr.com/post/163549473837/batfam-aob-attempt-probable-finale">Seven: Probably Finale</a> with @satire-please |</li>
+<li>
+<li><b>Pre-AOB Attmpt:</b><a href="https://iphoenixrising.tumblr.com/post/162888417422/huh-tim-is-going-to-metaphorically-murder-them">One</a>,
+<a href="https://iphoenixrising.tumblr.com/post/163310401337/its-apolloinred-im-not-at-my-computer-and-i-just">Two</a>, &amp;
+(<a href="https://iphoenixrising.tumblr.com/post/163428369922/followup-to-the-ask-from-apolloinred-i-could">HC</a>) |
+<a href="https://iphoenixrising.tumblr.com/post/180743719122/so-obvsly-dick-and-jason-were-together-before-tim">Together</a> |
+<a href="https://iphoenixrising.tumblr.com/post/169873358477/if-omega-tim-was-keeping-on-suppressants-and">Omega!Tim &amp; the Titans</a> | <a href="https://iphoenixrising.tumblr.com/post/181743683497/what-is-a-knot">Vocabulary</a> &amp;
+<a href="https://iphoenixrising.tumblr.com/post/177644025592/yknow-id-love-to-see-more-abo-bits-where-you-go#">Instincts</a> &amp;
+<a href="https://iphoenixrising.tumblr.com/post/164956029587/in-aboverse-what-is-your-headcanon-of-how-ruts">Rut mechanics</a> |
+</li>
+</ul></p>
+<b>the Interm: </b>
+<a href="https://iphoenixrising.tumblr.com/post/164621872207/for-300-followers">The Pack </a> (Cass and Fear Toxin; for 300 followers!) |
+<a href="https://iphoenixrising.tumblr.com/post/181743610172/jason-and-dick-leaving-for-a-mission-who-watches">An Eye on Tim</a> |
+<a href="https://iphoenixrising.tumblr.com/post/181634123867/ugh-just-imagine-jon-kent-crushing-on-tim">Alpha!DamiJon/Omega!Tim</a>,
+<a href="https://iphoenixrising.tumblr.com/post/182491665907/please-allow-me-to-say-thank-you-for-all-of-your">Tim &amp; Dami</a> |
+<a href="https://iphoenixrising.tumblr.com/post/183585244622/your-aob-au-really-makes-me-want-to-write-an-omega">Irresistible </a> |
+<a href="https://iphoenixrising.tumblr.com/post/182230300862/we-know-everyone-wants-omega-timmy-but-before">DickTimJay Mine</a> |
+<a href="https://iphoenixrising.tumblr.com/post/177643538822/would-you-ever-write-an-extension-to-the-aob">Tim plans for a rut</a> but ...
+<a href="https://iphoenixrising.tumblr.com/post/164997002807/oh-man-poor-tim-if-dick-and-jason-have-a-rut-at">Two Alphas in Rut and One Cute Omega</a> and
+<a href="https://iphoenixrising.tumblr.com/post/175291525922/aob-ask-two-times-tims-alphas-needed-him-and-the">Twice Tim’s Alphas Needed Him and Once He Needed Them</a> |
+<a href="https://iphoenixrising.tumblr.com/post/169872907887/imagine-your-aob-verse-where-a-villain-creates-a">drugged Reversal</a> &amp;
+<a href="https://iphoenixrising.tumblr.com/post/179810341752/for-the-abo-verse-i-was-wondering-what-would">Ivy</a> |
+<a href="https://iphoenixrising.tumblr.com/post/176895568372/would-you-ever-consider-writing-something-with">DickTim &amp; Knot</a> |
+<a href="https://iphoenixrising.tumblr.com/post/173849302977/i-love-your-omegatim-series-and-fracture">Vibrators and Whatnot</a> |
+<a href="https://iphoenixrising.tumblr.com/post/174071554782/little-prompt-for-your-dr-tim-or-abo-au-if">"Eat Me"</a> | <a href=”https://iphoenixrising.tumblr.com/post/615615378250448896/since-the-abo-verse-is-also-set-in-fracture”>The littles from Fracture</a>|
+<a href="https://iphoenixrising.tumblr.com/post/183687551292/for-700-followers">Double Heat</a> (for 700 followers!) | <a href=”https://iphoenixrising.tumblr.com/post/188530210262/for-900-followers-aob-bite”>The Follow-up for satire, AOB:Bite</a> | <a href=”https://iphoenixrising.tumblr.com/post/615611641728532480/hi-i-read-your-double-heat-this-is-kinda-like”> Post double-heat ask</a>
+<a href="https://iphoenixrising.tumblr.com/post/169872499087/i-had-a-pregnancy-scare-recently-and-im-still">Pregnancy Scare</a><b> warning for angst and feels </b> | <a href="https://iphoenixrising.tumblr.com/post/181297678872/dont-know-if-anyone-has-asked-this-yet-but-in">JayTim &amp; Ric</a> | <a href=”https://iphoenixrising.tumblr.com/post/189932446697/hey-babe-love-your-work-after-reading-your”>Needy Omega!Tim</a> |
+<br><b>possesive!Jason:</b> <a href="https://iphoenixrising.tumblr.com/post/180470287027/can-you-do-a-fan-fiction-where-alpha-jason-gets">The Original Ask</a> | <a href="https://iphoenixrising.tumblr.com/post/181633780147/i-was-wondering-if-you-were-going-to-continue-with">How it could start</a> &amp;
+<a href="https://iphoenixrising.tumblr.com/post/182101639157/fam-i-hope-one-day-you-write-that-ensuing-fight">where it could go</a><b> | </b>
+<a href="https://iphoenixrising.tumblr.com/post/180742268507/uuuuhhh-babeeeeee-u-got-me-hooked-on-that">Alpha!Jason</a> vs
+<a href="https://iphoenixrising.tumblr.com/post/171784905427/o-h-m-a-n-oaky-so-this-isnt-a-prompt-or-anything">Alpha!Dick</a> | <br><li>
+<li><b>the Future</b>
+<a href="https://iphoenixrising.tumblr.com/post/165103779537/how-do-you-see-tim-dick-and-jay-bonding-once">Bonding</a> |
+<a href="https://iphoenixrising.tumblr.com/post/164621872207/for-300-followers">Mating Bite</a> (for 300 followers!) |
+<b>Baby:</b> <a href="https://iphoenixrising.tumblr.com/post/178432482152/so-i-have-a-question-about-the-abo-universe">One</a> &amp;
+<a href="https://iphoenixrising.tumblr.com/post/182492327682/anywho-can-you-do-one-where-dick-and-jason-argue">Two</a> &amp;
+<a href="https://iphoenixrising.tumblr.com/post/182586329707/why-you-gotta-do-us-dirty-with-that-child-raising">Three</a> &amp;
+<a href="https://iphoenixrising.tumblr.com/post/182155706962/when-tim-gets-older-whose-child-do-you-think">Four</a> </li>
