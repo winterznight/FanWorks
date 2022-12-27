@@ -1,6 +1,4 @@
-HTML
-<p>Hi peeps.<br>Ah, <a class="tumblelog" href="https://tmblr.co/mXEmXBjTJvaKCLhTc7IFecQ">@shmoo92</a> put so much <i>work </i>into this I can’t even say thank-you enough :D</p>
-<p>The link for Part 2 is at the bottom ;) </p>
+<p>Part 1</p>
 <br><p></p><p><b>DC AOB AUs</b>
 </p><p><b>AOB Attempt</b>(DickTimJay; alpha!DickJay, omega!Tim): </p><ul><li><b>the Beginning</b>
 <a href="http://iphoenixrising.tumblr.com/post/153116214782/its-a-bit-weird-to-ask-this-here-since-i-love">One</a> | 
