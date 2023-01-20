@@ -10,7 +10,7 @@
 <a href="http://iphoenixrising.tumblr.com/post/145710243087/no-home-for-dead-birds-cont">Two</a> </li>
 <li><b>Home for Tiny Birds (with Tiny!Tim!):</b> <a href="https://iphoenixrising.tumblr.com/post/178712882492/thinking-about-the-idea-with-no-home-for-dead#">NHFDB!Tim </a> visits
 <a href="https://iphoenixrising.tumblr.com/post/178433930912/hey-i-have-been-rereading-a-bunch-of-your-stories">Tiny!Tim</a> (see also "Tiny!Tim UA" and "Convergence")</li></ul>
-<b>DC AOB AUs</b><br><b>AOB Attempt</b>(DickTimJay; alpha!DickJay, omega!Tim):</p>
+<b>DC AOB AUs</b><br><b>AOB Attempt</b>(DickTimJay; alpha!DickJay, omega!Tim):
 <ul><li><b>Original AOB attempt Omega!Tim/Alpha!Dick/Alpha!Jay:</b>
 <a href="http://iphoenixrising.tumblr.com/post/153116214782/its-a-bit-weird-to-ask-this-here-since-i-love">One</a> |
 <a href="https://iphoenixrising.tumblr.com/post/153158020017/batfam-aob-attempt-ii">Two</a> |
@@ -28,7 +28,7 @@
 <a href="https://iphoenixrising.tumblr.com/post/169873358477/if-omega-tim-was-keeping-on-suppressants-and">Omega!Tim &amp; the Titans</a> | <a href="https://iphoenixrising.tumblr.com/post/181743683497/what-is-a-knot">Vocabulary</a> &amp;
 <a href="https://iphoenixrising.tumblr.com/post/177644025592/yknow-id-love-to-see-more-abo-bits-where-you-go#">Instincts</a> | <a href="https://iphoenixrising.tumblr.com/post/164956029587/in-aboverse-what-is-your-headcanon-of-how-ruts">Rut mechanics</a> |
 <a href="https://iphoenixrising.tumblr.com/post/181743610172/jason-and-dick-leaving-for-a-mission-who-watches">An Eye on Tim Ask</a>|<a href="https://iphoenixrising.tumblr.com/post/183585244622/your-aob-au-really-makes-me-want-to-write-an-omega">First irresistible Omega!Tim ask </a> |
-<a href="https://iphoenixrising.tumblr.com/post/181634123867/ugh-just-imagine-jon-kent-crushing-on-tim">Alpha!DamiJon/Omega!Tim Ask</a>|<a href="https://iphoenixrising.tumblr.com/post/179810341752/for-the-abo-verse-i-was-wondering-what-would">Ivy toxin ask</a></li></p>
+<a href="https://iphoenixrising.tumblr.com/post/181634123867/ugh-just-imagine-jon-kent-crushing-on-tim">Alpha!DamiJon/Omega!Tim Ask</a>|<a href="https://iphoenixrising.tumblr.com/post/179810341752/for-the-abo-verse-i-was-wondering-what-would">Ivy toxin ask</a></li>
 <li><b>Interm fics: </b>
 <a href="https://iphoenixrising.tumblr.com/post/164621872207/for-300-followers">AOB Drabble: The Pack </a> (Cass and Fear Toxin; for 300 followers!) |
 <a href="https://iphoenixrising.tumblr.com/post/182491665907/please-allow-me-to-say-thank-you-for-all-of-your">Tim/Dami ask/ficlet for BatGran!</a> |
