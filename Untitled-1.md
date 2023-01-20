@@ -29,7 +29,7 @@
 <a href="https://iphoenixrising.tumblr.com/post/177644025592/yknow-id-love-to-see-more-abo-bits-where-you-go#">Instincts</a> | <a href="https://iphoenixrising.tumblr.com/post/164956029587/in-aboverse-what-is-your-headcanon-of-how-ruts">Rut mechanics</a> |
 <a href="https://iphoenixrising.tumblr.com/post/181743610172/jason-and-dick-leaving-for-a-mission-who-watches">An Eye on Tim Ask</a>|<a href="https://iphoenixrising.tumblr.com/post/183585244622/your-aob-au-really-makes-me-want-to-write-an-omega">First irresistible Omega!Tim ask </a> |
 <a href="https://iphoenixrising.tumblr.com/post/181634123867/ugh-just-imagine-jon-kent-crushing-on-tim">Alpha!DamiJon/Omega!Tim Ask</a>|<a href="https://iphoenixrising.tumblr.com/post/179810341752/for-the-abo-verse-i-was-wondering-what-would">Ivy toxin ask</a></li></p>
-<ul><li><b>Interm fics: </b>
+<li><b>Interm fics: </b>
 <a href="https://iphoenixrising.tumblr.com/post/164621872207/for-300-followers">AOB Drabble: The Pack </a> (Cass and Fear Toxin; for 300 followers!) |
 <a href="https://iphoenixrising.tumblr.com/post/182491665907/please-allow-me-to-say-thank-you-for-all-of-your">Tim/Dami ask/ficlet for BatGran!</a> |
 <a href="https://iphoenixrising.tumblr.com/post/182230300862/we-know-everyone-wants-omega-timmy-but-before">Everyone wants Tim ask</a> |<a href="https://iphoenixrising.tumblr.com/post/164997002807/oh-man-poor-tim-if-dick-and-jason-have-a-rut-at">Two Ruts for one fic</a> | <a href="https://iphoenixrising.tumblr.com/post/177643538822/would-you-ever-write-an-extension-to-the-aob">and the follow-up ask: Tim plans for a rut</a>|
