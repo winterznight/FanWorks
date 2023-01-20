@@ -21,16 +21,14 @@
 <a href="https://iphoenixrising.tumblr.com/post/171815219312/omegatim-short-the-talk">Post-Heat Follow Up</a>) |
 <a href="https://iphoenixrising.tumblr.com/post/163927315172/batfam-aob-attempt-6-the-demons-head">Six: The Demon’s Head <b></b></a>TW:mentions of assult |
 <a href="https://iphoenixrising.tumblr.com/post/163549473837/batfam-aob-attempt-probable-finale">Seven: Probably Finale</a> with @satire-please |</li>
-<li><ul><b>Asks</b><a href="https://iphoenixrising.tumblr.com/post/162888417422/huh-tim-is-going-to-metaphorically-murder-them">One</a> and
+<ul><li><b>Asks:</b><a href="https://iphoenixrising.tumblr.com/post/162888417422/huh-tim-is-going-to-metaphorically-murder-them">One</a> and
 <a href="https://iphoenixrising.tumblr.com/post/163310401337/its-apolloinred-im-not-at-my-computer-and-i-just">Two</a>, &amp;
 (<a href="https://iphoenixrising.tumblr.com/post/163428369922/followup-to-the-ask-from-apolloinred-i-could">HC for Six</a>) |
 <a href="https://iphoenixrising.tumblr.com/post/180743719122/so-obvsly-dick-and-jason-were-together-before-tim">Together</a> |
 <a href="https://iphoenixrising.tumblr.com/post/169873358477/if-omega-tim-was-keeping-on-suppressants-and">Omega!Tim &amp; the Titans</a> | <a href="https://iphoenixrising.tumblr.com/post/181743683497/what-is-a-knot">Vocabulary</a> &amp;
 <a href="https://iphoenixrising.tumblr.com/post/177644025592/yknow-id-love-to-see-more-abo-bits-where-you-go#">Instincts</a> | <a href="https://iphoenixrising.tumblr.com/post/164956029587/in-aboverse-what-is-your-headcanon-of-how-ruts">Rut mechanics</a> |
 <a href="https://iphoenixrising.tumblr.com/post/181743610172/jason-and-dick-leaving-for-a-mission-who-watches">An Eye on Tim Ask</a>|<a href="https://iphoenixrising.tumblr.com/post/183585244622/your-aob-au-really-makes-me-want-to-write-an-omega">First irresistible Omega!Tim ask </a> |
-<a href="https://iphoenixrising.tumblr.com/post/181634123867/ugh-just-imagine-jon-kent-crushing-on-tim">Alpha!DamiJon/Omega!Tim Ask</a>|<a href="https://iphoenixrising.tumblr.com/post/179810341752/for-the-abo-verse-i-was-wondering-what-would">Ivy toxin ask</a>
-*/Fics below, asks above/*
-</ul></li></p>
+<a href="https://iphoenixrising.tumblr.com/post/181634123867/ugh-just-imagine-jon-kent-crushing-on-tim">Alpha!DamiJon/Omega!Tim Ask</a>|<a href="https://iphoenixrising.tumblr.com/post/179810341752/for-the-abo-verse-i-was-wondering-what-would">Ivy toxin ask</a></li></p>
 <ul><li><b>Interm fics: </b>
 <a href="https://iphoenixrising.tumblr.com/post/164621872207/for-300-followers">AOB Drabble: The Pack </a> (Cass and Fear Toxin; for 300 followers!) |
 <a href="https://iphoenixrising.tumblr.com/post/182491665907/please-allow-me-to-say-thank-you-for-all-of-your">Tim/Dami ask/ficlet for BatGran!</a> |
@@ -39,12 +37,13 @@
 <a href="https://iphoenixrising.tumblr.com/post/176895568372/would-you-ever-consider-writing-something-with">DickTim &amp; Warming fic</a> |
 <a href="https://iphoenixrising.tumblr.com/post/173849302977/i-love-your-omegatim-series-and-fracture">Vibrators and Whatnot</a> |
 <a href="https://iphoenixrising.tumblr.com/post/174071554782/little-prompt-for-your-dr-tim-or-abo-au-if">"Eat Me"</a> | <a href="https://iphoenixrising.tumblr.com/post/615615378250448896/since-the-abo-verse-is-also-set-in-fracture">The littles from Fracture</a>|
-<a href="https://iphoenixrising.tumblr.com/post/183687551292/for-700-followers">Double Heat</a> (for 700 followers!) | <a href=”https://iphoenixrising.tumblr.com/post/188530210262/for-900-followers-aob-bite”>The Follow-up for satire, AOB:Bite</a> | <a href=”https://iphoenixrising.tumblr.com/post/615611641728532480/hi-i-read-your-double-heat-this-is-kinda-like”> Post double-heat ask</a>|
-<a href="https://iphoenixrising.tumblr.com/post/169872499087/i-had-a-pregnancy-scare-recently-and-im-still">Pregnancy Scare</a><b> warning for angst and feels </b> | <a href="https://iphoenixrising.tumblr.com/post/181297678872/dont-know-if-anyone-has-asked-this-yet-but-in">JayTim &amp; Ric</a> | <a href=”https://iphoenixrising.tumblr.com/post/189932446697/hey-babe-love-your-work-after-reading-your”>Needy Omega!Tim</a> | |<a href=”https://iphoenixrising.tumblr.com/post/615617980123021312/since-ras-can-be-extremely-creepy-to-tim-in-most”>Creepy Ra’s post Ch.6</a>
+<a href="https://iphoenixrising.tumblr.com/post/183687551292/for-700-followers">Double Heat</a> (for 700 followers!) | <a href="https://iphoenixrising.tumblr.com/post/188530210262/for-900-followers-aob-bite">The Follow-up for satire, AOB:Bite</a> | <a href=”https://iphoenixrising.tumblr.com/post/615611641728532480/hi-i-read-your-double-heat-this-is-kinda-like”> Post double-heat ask</a>|
+<a href="https://iphoenixrising.tumblr.com/post/169872499087/i-had-a-pregnancy-scare-recently-and-im-still">Pregnancy Scare</a><b> warning for angst and feels </b> | <a href="https://iphoenixrising.tumblr.com/post/181297678872/dont-know-if-anyone-has-asked-this-yet-but-in">JayTim &amp; Ric</a> | <a href="https://iphoenixrising.tumblr.com/post/189932446697/hey-babe-love-your-work-after-reading-your">Needy Omega!Tim</a> |<a href="https://iphoenixrising.tumblr.com/post/615617980123021312/since-ras-can-be-extremely-creepy-to-tim-in-most">Creepy Ra’s post Ch.6</a>
 <br><b>possesive!Jason:</b> <a href="https://iphoenixrising.tumblr.com/post/180470287027/can-you-do-a-fan-fiction-where-alpha-jason-gets">The Original Ask</a> | <a href="https://iphoenixrising.tumblr.com/post/181633780147/i-was-wondering-if-you-were-going-to-continue-with">How it could start</a> &amp;
 <a href="https://iphoenixrising.tumblr.com/post/182101639157/fam-i-hope-one-day-you-write-that-ensuing-fight">where it could go</a><b> | </b>
 <a href="https://iphoenixrising.tumblr.com/post/180742268507/uuuuhhh-babeeeeee-u-got-me-hooked-on-that">Alpha!Jason</a> vs
 <a href="https://iphoenixrising.tumblr.com/post/171784905427/o-h-m-a-n-oaky-so-this-isnt-a-prompt-or-anything">Alpha!Dick</a> | <br></li>
+</ul>
 <li><b>the Future</b>
 <a href="https://iphoenixrising.tumblr.com/post/165103779537/how-do-you-see-tim-dick-and-jay-bonding-once">Bonding</a> |
 <a href="https://iphoenixrising.tumblr.com/post/164621872207/for-300-followers">Mating Bite</a> (for 300 followers!) |
