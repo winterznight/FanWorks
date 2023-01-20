@@ -49,7 +49,7 @@
 <a href="https://iphoenixrising.tumblr.com/post/182492327682/anywho-can-you-do-one-where-dick-and-jason-argue">Two</a> &amp;
 <a href="https://iphoenixrising.tumblr.com/post/182586329707/why-you-gotta-do-us-dirty-with-that-child-raising">Three</a> &amp;
 <a href="https://iphoenixrising.tumblr.com/post/182155706962/when-tim-gets-older-whose-child-do-you-think">Four</a> </li></ul>
-<li><b>Other Omega!Tim things</b>:<a href="https://iphoenixrising.tumblr.com/post/182403737512/ooiiii-maybe-this-can-be-before-jaydicktim-are-a">omega!Tim doessn't hide au</a> | <a href=”https://iphoenixrising.tumblr.com/post/189261939307/i-had-a-little-though-about-the-otim-verse”>Alfred being awesome</a>|<a href=”https://iphoenixrising.tumblr.com/post/188335974417/hiya-babe-so-theres-this-idea-ive-been-sitting”>Pregnant, kidnapped Tim ramble</a>|<a href=“https://iphoenixrising.tumblr.com/post/635353384938012672/if-its-not-a-problem-i-would-like-to-see-what”>Super angsty safeword AOB ask</a>|<b>Angsty Hiding Pregnant Tim au</b>:<a href=”https://iphoenixrising.tumblr.com/post/189678743547/i-can-just-imagine-tim-being-pregnant-and-going”>Angsty Omega!Tim goes into hiding</a>|<a href=”https://iphoenixrising.tumblr.com/post/189912188492/omg-i-loved-your-omegatimmy-having-twins-and-not”>Part 2</a>|
+<li><b>Other Omega!Tim things:</b> <a href="https://iphoenixrising.tumblr.com/post/182403737512/ooiiii-maybe-this-can-be-before-jaydicktim-are-a">omega!Tim doessn't hide au</a> | <a href="https://iphoenixrising.tumblr.com/post/189261939307/i-had-a-little-though-about-the-otim-verse">Alfred being awesome</a> | <a href="https://iphoenixrising.tumblr.com/post/188335974417/hiya-babe-so-theres-this-idea-ive-been-sitting">Pregnant, kidnapped Tim ramble</a> | <a href="https://iphoenixrising.tumblr.com/post/635353384938012672/if-its-not-a-problem-i-would-like-to-see-what">Super angsty safeword AOB ask</a> | <b>Angsty Hiding Pregnant Tim au</b>:<a href="https://iphoenixrising.tumblr.com/post/189678743547/i-can-just-imagine-tim-being-pregnant-and-going">Omega!Tim goes into hiding</a> | <a href="https://iphoenixrising.tumblr.com/post/189912188492/omg-i-loved-your-omegatimmy-having-twins-and-not">Part 2</a>
 </li>
 <li><b>Reverse AOB </b>(alpha!Tim):
 <a href="https://iphoenixrising.tumblr.com/post/181667161792/more-alpha-tim-x-omega-dick">DickTim Backstory </a> |
@@ -57,7 +57,7 @@
 <a href="https://iphoenixrising.tumblr.com/post/176681695892/i-just-had-a-simultaneously-hilarious-and">Two</a> &amp;
 <a href="https://iphoenixrising.tumblr.com/post/177642746852/i-love-your-fics-so-much-i-keep-rereading-them">Three</a> &amp;
 <a href="https://iphoenixrising.tumblr.com/post/179541828052/for-600-followers-batfam-abo-remix">for 600 followers! </a>
-<a href=“https://iphoenixrising.tumblr.com/post/657342051096117248/dicktim-week-day-3-aob-and-bdsm”>DickTim Week Day 3: AOB and BDSM.Alpha!Tim, Omega!Dick</a>
-<a href=“https://iphoenixrising.tumblr.com/post/184702512702/oh-goodness-i-loved-loved-loved-the-new-chapters”>Thinking out loud with babe on slightly possessive Omega!Dick and Omega!Jay</a>
-<a href=“https://iphoenixrising.tumblr.com/post/615256237878247424/are-you-participating-in-omega-jason-todd-week”>About Omega!Jay for Bottom Jason Todd week</a>|</a>
-<a href=“https://iphoenixrising.tumblr.com/post/626215787475156992/bottom-jason-todd-week-day-2-unwilling”>And the actual fic for Bottom Jason Todd week</a>
+<a href="https://iphoenixrising.tumblr.com/post/657342051096117248/dicktim-week-day-3-aob-and-bdsm">DickTim Week Day 3: AOB and BDSM.Alpha!Tim, Omega!Dick</a>
+<a href="https://iphoenixrising.tumblr.com/post/184702512702/oh-goodness-i-loved-loved-loved-the-new-chapters">Thinking out loud with babe on slightly possessive Omega!Dick and Omega!Jay</a>
+<a href="https://iphoenixrising.tumblr.com/post/615256237878247424/are-you-participating-in-omega-jason-todd-week">About Omega!Jay for Bottom Jason Todd week</a> | </a>
+<a href="https://iphoenixrising.tumblr.com/post/626215787475156992/bottom-jason-todd-week-day-2-unwilling">And the actual fic for Bottom Jason Todd week</a>
