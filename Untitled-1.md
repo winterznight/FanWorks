@@ -41,11 +41,23 @@
 <li><b>Possesive!Jason fics:</b> <a href="https://iphoenixrising.tumblr.com/post/180470287027/can-you-do-a-fan-fiction-where-alpha-jason-gets">The Original Ask</a> | <a href="https://iphoenixrising.tumblr.com/post/181633780147/i-was-wondering-if-you-were-going-to-continue-with">How it could start</a> &amp;
 <a href="https://iphoenixrising.tumblr.com/post/182101639157/fam-i-hope-one-day-you-write-that-ensuing-fight">where it could go</a><b> | </b>
 <a href="https://iphoenixrising.tumblr.com/post/180742268507/uuuuhhh-babeeeeee-u-got-me-hooked-on-that">Alpha!Jason</a> vs
-<a href="https://iphoenixrising.tumblr.com/post/171784905427/o-h-m-a-n-oaky-so-this-isnt-a-prompt-or-anything">Alpha!Dick</a> | <br></li>
-<li><b>the Future</b>
+<a href="https://iphoenixrising.tumblr.com/post/171784905427/o-h-m-a-n-oaky-so-this-isnt-a-prompt-or-anything">Alpha!Dick</a> <br></li>
+<li><b>Future fics:</b>
 <a href="https://iphoenixrising.tumblr.com/post/165103779537/how-do-you-see-tim-dick-and-jay-bonding-once">Bonding</a> |
 <a href="https://iphoenixrising.tumblr.com/post/164621872207/for-300-followers">Mating Bite</a> (for 300 followers!) |
 <b>Baby:</b> <a href="https://iphoenixrising.tumblr.com/post/178432482152/so-i-have-a-question-about-the-abo-universe">One</a> &amp;
 <a href="https://iphoenixrising.tumblr.com/post/182492327682/anywho-can-you-do-one-where-dick-and-jason-argue">Two</a> &amp;
 <a href="https://iphoenixrising.tumblr.com/post/182586329707/why-you-gotta-do-us-dirty-with-that-child-raising">Three</a> &amp;
 <a href="https://iphoenixrising.tumblr.com/post/182155706962/when-tim-gets-older-whose-child-do-you-think">Four</a> </li></ul>
+<li><b>Other Omega!Tim things</b>:<a href="https://iphoenixrising.tumblr.com/post/182403737512/ooiiii-maybe-this-can-be-before-jaydicktim-are-a">omega!Tim doessn't hide au</a> | <a href=”https://iphoenixrising.tumblr.com/post/189261939307/i-had-a-little-though-about-the-otim-verse”>Alfred being awesome</a>|<a href=”https://iphoenixrising.tumblr.com/post/188335974417/hiya-babe-so-theres-this-idea-ive-been-sitting”>Pregnant, kidnapped Tim ramble</a>|<a href=“https://iphoenixrising.tumblr.com/post/635353384938012672/if-its-not-a-problem-i-would-like-to-see-what”>Super angsty safeword AOB ask</a>|<b>Angsty Hiding Pregnant Tim au</b>:<a href=”https://iphoenixrising.tumblr.com/post/189678743547/i-can-just-imagine-tim-being-pregnant-and-going”>Angsty Omega!Tim goes into hiding</a>|<a href=”https://iphoenixrising.tumblr.com/post/189912188492/omg-i-loved-your-omegatimmy-having-twins-and-not”>Part 2</a>|
+</li>
+<li><b>Reverse AOB </b>(alpha!Tim):
+<a href="https://iphoenixrising.tumblr.com/post/181667161792/more-alpha-tim-x-omega-dick">DickTim Backstory </a> |
+<a href="https://iphoenixrising.tumblr.com/post/176677462152/have-you-thought-about-your-abo-au-if-their">One</a> &amp;
+<a href="https://iphoenixrising.tumblr.com/post/176681695892/i-just-had-a-simultaneously-hilarious-and">Two</a> &amp;
+<a href="https://iphoenixrising.tumblr.com/post/177642746852/i-love-your-fics-so-much-i-keep-rereading-them">Three</a> &amp;
+<a href="https://iphoenixrising.tumblr.com/post/179541828052/for-600-followers-batfam-abo-remix">for 600 followers! </a>
+<a href=“https://iphoenixrising.tumblr.com/post/657342051096117248/dicktim-week-day-3-aob-and-bdsm”>DickTim Week Day 3: AOB and BDSM.Alpha!Tim, Omega!Dick</a>
+<a href=“https://iphoenixrising.tumblr.com/post/184702512702/oh-goodness-i-loved-loved-loved-the-new-chapters”>Thinking out loud with babe on slightly possessive Omega!Dick and Omega!Jay</a>
+<a href=“https://iphoenixrising.tumblr.com/post/615256237878247424/are-you-participating-in-omega-jason-todd-week”>About Omega!Jay for Bottom Jason Todd week</a>|</a>
+<a href=“https://iphoenixrising.tumblr.com/post/626215787475156992/bottom-jason-todd-week-day-2-unwilling”>And the actual fic for Bottom Jason Todd week</a>
