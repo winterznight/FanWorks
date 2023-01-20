@@ -61,3 +61,7 @@
 <a href="https://iphoenixrising.tumblr.com/post/184702512702/oh-goodness-i-loved-loved-loved-the-new-chapters">Thinking out loud with babe on slightly possessive Omega!Dick and Omega!Jay</a>
 <a href="https://iphoenixrising.tumblr.com/post/615256237878247424/are-you-participating-in-omega-jason-todd-week">About Omega!Jay for Bottom Jason Todd week</a> | </a>
 <a href="https://iphoenixrising.tumblr.com/post/626215787475156992/bottom-jason-todd-week-day-2-unwilling">And the actual fic for Bottom Jason Todd week</a>
+<li><br><b>Headcanons: </b><a href="https://iphoenixrising.tumblr.com/post/179765049102/12-your-reverse-aob-fic-was-so-good-one-thing-i">omega!Jason</a> &amp;
+<a href="https://iphoenixrising.tumblr.com/post/182152733352/dude-dude-i-love-love-love-the-way-you-write-the">Thinking about </a> ...
+<a href="https://iphoenixrising.tumblr.com/post/179737413857/you-are-so-darn-talented-i-get-so-excited">good alpha!Tim</a> <b>Alpha!Dami presents</b> <a href="https://iphoenixrising.tumblr.com/post/185399270157/been-going-through-a-lot-lately-i-had-this-great"> Alpha!Tim helping Alpha!Dami </a></li>
+
