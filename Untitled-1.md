@@ -97,7 +97,7 @@
 <a href="https://iphoenixrising.tumblr.com/post/181098211762/subtim-au">One</a> &amp;|<a href="https://iphoenixrising.tumblr.com/post/181634467462/hey-your-subtim-blew-me-away-the-caring-that">Sub!Tim SFW?</a> &amp;|<a href="https://iphoenixrising.tumblr.com/post/182491716662/just-wondering-no-pressure-whatsoever-but-are">Continuation?</a>|<a href="https://href.li/?https://archiveofourown.org/works/16997460/chapters/44138764">Part II on Ao3</a>|<a href="https://iphoenixrising.tumblr.com/post/188530212277/for-900-followers-subtim-iii">Part III</a>|<a href="https://iphoenixrising.tumblr.com/post/189932706867/subtim-omake-superbats">Sub!Tim Omake: Superbats</a> | <a href="https://iphoenixrising.tumblr.com/post/189966665082/i-love-the-bruceclark-so-sweet-clark-is-just">Ask</a> |<a href="https://iphoenixrising.tumblr.com/post/611995741807886336/hiya-hun-i-hope-all-is-well-with-you-and-your">and another</a> | <a href="https://iphoenixrising.tumblr.com/post/188734966222/hiya-love-i-hope-youre-doing-well-i-was">Bruce initially struggling</a> |<a href="https://iphoenixrising.tumblr.com/post/188872327702/wip-challenge-subtim-edition">Sub!Tim WIP challenge post</a> | <a href="https://iphoenixrising.tumblr.com/post/188872608482/wip-challenge-subtim-editing">Mostly NSFW WIPs</a>
 
 </li>
-<li><b>DickTim Week 2021</b><a href="https://archiveofourown.org/works/32853994">On Ao3</a> |
+<li><b>DickTim Week 2021</b><a href="https://archiveofourown.org/works/32853994"> On Ao3</a> |
 <a href="https://iphoenixrising.tumblr.com/post/657185758845796352/the-demon-you-know">Day 1: Creature!Dick</a> |
 <a href="https://iphoenixrising.tumblr.com/post/659192890140098560/hi-babe-i-absolutely-loved-all-of-your-dicktim"> Rambling about what happened after Creature!Dick</a> |
 <a href="https://iphoenixrising.tumblr.com/post/657257316418273280/dicktimweek2021-day-2">Day 2: Sad Time Loop, watch your feels</a> |
@@ -115,8 +115,7 @@
 <a href="https://iphoenixrising.tumblr.com/post/147328018187/dont">"Don't!"</a> |
 <a href="http://iphoenixrising.tumblr.com/post/153005607427/thank-you-for-being-such-a-wonderful-author-just">Tim being Tim</a> |
 <a href="https://iphoenixrising.tumblr.com/post/156520448622/200-followers-prompt-fill">Childhood</a> (for 200 followers!) |
-<a href="https://iphoenixrising.tumblr.com/post/178434213702/jason-is-missing-all-of-his-shirts-how-would-he">Jason's Shirts (HC)</a> | <a href="https://iphoenixrising.tumblr.com/post/187614222557/you-know-i-really-love-how-badass-and-capable-tim">Boyfriends to the rescue!</a> | <a href="https://iphoenixrising.tumblr.com/post/188015048222/idk-i-cant-stop-thinking-abt-if-tim-lost-some-of">memory loss ask </a>|<a href="https://iphoenixrising.tumblr.com/post/188120065342/idk-i-cant-stop-thinking-abt-if-tim-lost-some-of">Missing memory, more ideas</a>
-<b>Soul Mark AU: </b>
+<a href="https://iphoenixrising.tumblr.com/post/178434213702/jason-is-missing-all-of-his-shirts-how-would-he">Jason's Shirts (HC)</a> | <a href="https://iphoenixrising.tumblr.com/post/187614222557/you-know-i-really-love-how-badass-and-capable-tim">Boyfriends to the rescue!</a> | <a href="https://iphoenixrising.tumblr.com/post/188015048222/idk-i-cant-stop-thinking-abt-if-tim-lost-some-of">memory loss ask </a>|<a href="https://iphoenixrising.tumblr.com/post/188120065342/idk-i-cant-stop-thinking-abt-if-tim-lost-some-of">Missing memory, more ideas</a> | <b>Soul Mark AU: </b>
 <a href="https://iphoenixrising.tumblr.com/post/175291068227">One</a> &amp;
 <a href="https://iphoenixrising.tumblr.com/post/175971065017/soulmate-thing-cont">Two </a> <a href="https://iphoenixrising.tumblr.com/post/186923705987/for-800-followers-soulmate-epilogue"> Soulmate au Epilogue for 800 Followers! (NSFW)</a> &amp;
 <a href="https://iphoenixrising.tumblr.com/post/175984359187/poison-basil-i-made-this-in-collaboration-with">Art!!!</a> | <a href="https://iphoenixrising.tumblr.com/post/185510111072/hey-babe-what-about-tim-doing-a-strip-tease-and"> <b>Strip Tease</b> The First Ask</a> <a href="https://iphoenixrising.tumblr.com/post/185670492167/first-your-writing-is-so-amazing-second-would">And the continuation </a> |
@@ -145,8 +144,8 @@ Art: <a href="https://iphoenixrising.tumblr.com/post/181825883687/i-finally-figu
 <a href="https://iphoenixrising.tumblr.com/post/182338446057/so-much-attention-for-an-au-i-was-never-going-to">Thirst</a> &amp;
 <a href="https://iphoenixrising.tumblr.com/post/182236756422/i-recently-found-your-blog-and-promptly-read">Future</a> </li>
 
-<li><b>DamiTim<b>
-<a href="https://archiveofourown.org/works/38998470/chapters/97549215">Nurse Tim! Robin!Dami WIP on Ao3</a> | <a href="https://iphoenixrising.tumblr.com/post/189874156062/babe-youve-been-so-quietwhy-do-i-feel-like">Concept</a> | Alph!Dami/Alph!Jon/Omega!Tim<a href="https://iphoenixrising.tumblr.com/post/181634123867/ugh-just-imagine-jon-kent-crushing-on-tim">The original ask</a>|
+<li><b>DamiTim</b>
+<a href="https://archiveofourown.org/works/38998470/chapters/97549215">Nurse Tim! Robin!Dami WIP on Ao3</a> | <a href="https://iphoenixrising.tumblr.com/post/189874156062/babe-youve-been-so-quietwhy-do-i-feel-like">Concept</a> | Alph!Dami/Alph!Jon/Omega!Tim: <a href="https://iphoenixrising.tumblr.com/post/181634123867/ugh-just-imagine-jon-kent-crushing-on-tim">The original ask</a>|
 <a href="https://iphoenixrising.tumblr.com/post/182491665907/please-allow-me-to-say-thank-you-for-all-of-your">Tim &amp; Dami</a> |
 <a href="https://iphoenixrising.tumblr.com/post/188015893767/omg-that-recent-omegatim-with-alpha-damien-hit"></a>
 </li>
@@ -160,7 +159,7 @@ Art: <a href="https://iphoenixrising.tumblr.com/post/181825883687/i-finally-figu
 <a href="https://iphoenixrising.tumblr.com/post/182230497837/tim-seems-like-hed-say-dumb-shit-when-sex-is-more">Thinking</a> |
 <a href="https://iphoenixrising.tumblr.com/post/182648261742/tim-having-to-choose-between-jason-and-dick">I Choose You</a> |
 <a href="https://iphoenixrising.tumblr.com/post/174774195787/jaytim-and-knifeplay-yn-maybe-that-wicked-kris">Knife kink</a> |
-<a href="https://iphoenixrising.tumblr.com/post/152248482492/look-you-cannot-do-that-to-me-you-cant-just-have">Pit Rage (HC)</a>|<a href="https://iphoenixrising.tumblr.com/post/626122753894957056/bottom-jason-todd-week-cam-boy-jason">Bottom Jason Todd Week: Cam Boy Jason, JayTim</a>|<a href="https://iphoenixrising.tumblr.com/post/626215787475156992/bottom-jason-todd-week-day-2-unwilling"> Bottom Jason Todd Week: Un/willing impregnation</a>|<a href="https://iphoenixrising.tumblr.com/post/187090041127/jays-birthday-is-coming-up">Jay's birthday NSFW</a></li>
+<a href="https://iphoenixrising.tumblr.com/post/152248482492/look-you-cannot-do-that-to-me-you-cant-just-have">Pit Rage (HC)</a>|<b>Bottom Jason Todd Week:</b> <a href="https://iphoenixrising.tumblr.com/post/626122753894957056/bottom-jason-todd-week-cam-boy-jason"> Cam Boy Jason, JayTim</a>|<a href="https://iphoenixrising.tumblr.com/post/626215787475156992/bottom-jason-todd-week-day-2-unwilling"> Bottom Jason Todd Week: Un/willing impregnation</a>|<a href="https://iphoenixrising.tumblr.com/post/187090041127/jays-birthday-is-coming-up">Jay's birthday NSFW</a></li>
 <li><b>De-Aged Jay</b>(based on <a href="https://cearamorran.tumblr.com/post/162898781538/to-be-probably-continued-i-had-this-in-a-folder">fanart</a>):
 <a href="https://iphoenixrising.tumblr.com/post/168413221947/i-said-i-was-kind-of-going-on-a-hiatus-too-many">Ficlet</a> |
 <a href="https://iphoenixrising.tumblr.com/post/168847269747/oh-no-is-tim-in-the-de-agedau-actually">HC</a></li>
