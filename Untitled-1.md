@@ -1,4 +1,5 @@
-<p><p><b><a href="https://archiveofourown.org/users/wintersnight/pseuds/wintersnight">Wintersnight</a></b> on AO3 <br>
+<p><p><b>Masterlist 1 updated</p>
+<a href="https://archiveofourown.org/users/wintersnight/pseuds/wintersnight">Wintersnight</a></b> on AO3 <br>
 <b>Fracture</b>
 <ul><li><a href="https://archiveofourown.org/series/1465870"><b>The Fracture Verse and other Things</b></a> | <a href="https://iphoenixrising.tumblr.com/post/187109852972/babe-downloaded-fracture-as-a-pdf-and-got"> Fracture, a whole ass book</a> | <a href="https://archiveofourown.org/works/5156417"><b>Fracture main story on Ao3</b></a> | <a href="https://poison-basil.tumblr.com/post/164615600140/iphoenixrising-fractured-tim-d-thanks-for">Chapter 1 Fanart from poison-basil<3</a> | <a href="https://poison-basil.tumblr.com/post/165086934095/via-whirlybird-by-kerryharnett-3d-scene-red">Then babe made a whirlybird</a>
 <li><a href="https://archiveofourown.org/works/20382547/chapters/48342265">Destroyed on Ao3</a> | On Tumblr:<a href="http://iphoenixrising.tumblr.com/post/138448102402/from-the-fractured-verse-destroyed">One</a> | <a href="http://iphoenixrising.tumblr.com/post/139459037542/from-the-fractured-verse-destroyed-part-ii">Two</a> | <a href="http://iphoenixrising.tumblr.com/post/139459037542/from-the-fractured-verse-destroyed-part-ii">Three</a> | <a href="https://iphoenixrising.tumblr.com/post/173400807197/oh-god-i-just-reread-destroyed-for-like-the">After-fic HC</a> | <a href="https://iphoenixrising.tumblr.com/post/173850761867/tbh-in-the-far-future-if-u-ever-write-a-destroyed">Tim Stays</a> | <a href="https://iphoenixrising.tumblr.com/post/175489614822/hiya-babe-i-love-your-writing-and-i-have-a-quick">Interest</a> (see also "BatFam") </li>
@@ -160,7 +161,7 @@ Art: <a href="https://iphoenixrising.tumblr.com/post/181825883687/i-finally-figu
 <a href="https://iphoenixrising.tumblr.com/post/182648261742/tim-having-to-choose-between-jason-and-dick">I Choose You</a> |
 <a href="https://iphoenixrising.tumblr.com/post/174774195787/jaytim-and-knifeplay-yn-maybe-that-wicked-kris">Knife kink</a> |
 <a href="https://iphoenixrising.tumblr.com/post/152248482492/look-you-cannot-do-that-to-me-you-cant-just-have">Pit Rage (HC)</a>|<b>Bottom Jason Todd Week:</b> <a href="https://iphoenixrising.tumblr.com/post/626122753894957056/bottom-jason-todd-week-cam-boy-jason"> Cam Boy Jason, JayTim</a>|<a href="https://iphoenixrising.tumblr.com/post/626215787475156992/bottom-jason-todd-week-day-2-unwilling"> Bottom Jason Todd Week: Un/willing impregnation</a>|<a href="https://iphoenixrising.tumblr.com/post/187090041127/jays-birthday-is-coming-up">Jay's birthday NSFW</a></li>
-<li><b>De-Aged Jay</b>(based on <a href="https://cearamorran.tumblr.com/post/162898781538/to-be-probably-continued-i-had-this-in-a-folder">fanart</a>):
+<li><b>De-Aged Jay</b>c(based on <a href="https://cearamorran.tumblr.com/post/162898781538/to-be-probably-continued-i-had-this-in-a-folder">fanart</a>):
 <a href="https://iphoenixrising.tumblr.com/post/168413221947/i-said-i-was-kind-of-going-on-a-hiatus-too-many">Ficlet</a> |
 <a href="https://iphoenixrising.tumblr.com/post/168847269747/oh-no-is-tim-in-the-de-agedau-actually">HC</a></li>
 <li><b>Night Call</b> (Stripper!AU; NSFW):
@@ -180,12 +181,12 @@ Art: <a href="https://iphoenixrising.tumblr.com/post/181825883687/i-finally-figu
 <li><b>Fic Recs:</b>
 <a href="https://iphoenixrising.tumblr.com/post/182814980137/2-are-you-attempting-to-kill-me-try-harder">Are you Trying to Kill Me? by chibinightowl</a></li></ul>
 
-<b>Tim-centric:</b><ul><li> |<a href="https://iphoenixrising.tumblr.com/post/182971154737/poison-basil-25-min-sprint-of-tim-drake">Tim (art rec)</a></li>
+<b>Tim-centric:</b><ul><li><a href="https://iphoenixrising.tumblr.com/post/182971154737/poison-basil-25-min-sprint-of-tim-drake">Tim (art rec)</a></li>
 <li><b>Caroline:</b>
 <a href="https://iphoenixrising.tumblr.com/post/174070680927">TimKon</a> |
 <a href="https://iphoenixrising.tumblr.com/post/174289284407">DickTimJay</a> &amp;
-<a href="https://iphoenixrising.tumblr.com/post/174295000587">NSFW</a> drab based of @curdleddoodle'
-<a href="https://curdleddoodle.tumblr.com/post/174292122603">s amazing art</a> </li>
+<a href="https://iphoenixrising.tumblr.com/post/174295000587">NSFW</a> drab based of @curdleddoodle's
+<a href="https://curdleddoodle.tumblr.com/post/174292122603">amazing art</a> </li>
 <li><b>Misc Tim HCs:</b>
 <a href="https://iphoenixrising.tumblr.com/post/169873480582">Ra'sTim: Bard</a> |
 <a href="https://iphoenixrising.tumblr.com/post/153972717717">Marshall</a> |
@@ -208,8 +209,6 @@ Art: <a href="https://iphoenixrising.tumblr.com/post/181825883687/i-finally-figu
 <a href="https://iphoenixrising.tumblr.com/post/144583859147">Two</a> &amp;
 <a href="https://iphoenixrising.tumblr.com/post/144611902587">Three</a>
 <br>
-<b>Supervillain Tim Drake:<a href="https://iphoenixrising.tumblr.com/post/187590420412/so-im-re-reading-nhfdb-for-the-billionth-time-and">Supervillain Tim Drake</a> | <a href="https://iphoenixrising.tumblr.com/post/187590613957/ooohmy-brain-just-spat-another-idea-at-me">All the Titans as supervillains</a></b></li></ul>
-<br><p><b><a href="https://iphoenixrising.tumblr.com/post/185328246127/masterlist-part-2">Masterlist Part 2!</a></b></p>
-Footer
+<b>Supervillain Tim Drake:</b><a href="https://iphoenixrising.tumblr.com/post/187590420412/so-im-re-reading-nhfdb-for-the-billionth-time-and">Supervillain Tim Drake</a> | <a href="https://iphoenixrising.tumblr.com/post/187590613957/ooohmy-brain-just-spat-another-idea-at-me">All the Titans as supervillains</a></b></li></ul>
 
 
