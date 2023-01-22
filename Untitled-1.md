@@ -57,31 +57,30 @@
 <a href="https://iphoenixrising.tumblr.com/post/176681695892/i-just-had-a-simultaneously-hilarious-and">Two</a> &amp;
 <a href="https://iphoenixrising.tumblr.com/post/177642746852/i-love-your-fics-so-much-i-keep-rereading-them">Three</a> &amp;
 <a href="https://iphoenixrising.tumblr.com/post/179541828052/for-600-followers-batfam-abo-remix">for 600 followers! </a>
-<a href="https://iphoenixrising.tumblr.com/post/657342051096117248/dicktim-week-day-3-aob-and-bdsm">DickTim Week Day 3: AOB and BDSM.Alpha!Tim, Omega!Dick</a> | <a href="https://iphoenixrising.tumblr.com/post/185399270157/been-going-through-a-lot-lately-i-had-this-great"> Alpha!Tim helping Alpha!Dami with Omega!Dick</a> | <a href="https://iphoenixrising.tumblr.com/post/184702512702/oh-goodness-i-loved-loved-loved-the-new-chapters">Thinking out loud with babe on slightly possessive Omega!Dick and Omega!Jay</a> | <a href="https://iphoenixrising.tumblr.com/post/182232953462/i-absolutely-love-your-writing-and-your-recent">Pit-mad Omega!Jay and good Pack Alpha!Tim</a>
-<a href="https://iphoenixrising.tumblr.com/post/615256237878247424/are-you-participating-in-omega-jason-todd-week">About Omega!Jay for Bottom Jason Todd week</a> | </a>
-<a href="https://iphoenixrising.tumblr.com/post/626215787475156992/bottom-jason-todd-week-day-2-unwilling">And the actual fic for Bottom Jason Todd week</a>
+<a href="https://iphoenixrising.tumblr.com/post/657342051096117248/dicktim-week-day-3-aob-and-bdsm">DickTim Week Day 3: AOB and BDSM.Alpha!Tim, Omega!Dick</a> | <a href="https://iphoenixrising.tumblr.com/post/185399270157/been-going-through-a-lot-lately-i-had-this-great"> Alpha!Tim helping Alpha!Dami with Omega!Dick</a> | <a href="https://iphoenixrising.tumblr.com/post/184702512702/oh-goodness-i-loved-loved-loved-the-new-chapters">Thinking out loud with babe on slightly possessive Omega!Dick and Omega!Jay</a> | <a href="https://iphoenixrising.tumblr.com/post/182232953462/i-absolutely-love-your-writing-and-your-recent">Pit-mad Omega!Jay and good Pack Alpha!Tim</a> | <a href="https://iphoenixrising.tumblr.com/post/615256237878247424/are-you-participating-in-omega-jason-todd-week">About Omega!Jay for Bottom Jason Todd week</a>
+ | <a href="https://iphoenixrising.tumblr.com/post/626215787475156992/bottom-jason-todd-week-day-2-unwilling">And the actual fic for Bottom Jason Todd week</a>
 <li><b>Headcanons: </b><a href="https://iphoenixrising.tumblr.com/post/179765049102/12-your-reverse-aob-fic-was-so-good-one-thing-i">omega!Jason</a> &amp;
 <a href="https://iphoenixrising.tumblr.com/post/182152733352/dude-dude-i-love-love-love-the-way-you-write-the">Thinking about a more dominant Alpha!Tim</a> and
 <a href="https://iphoenixrising.tumblr.com/post/179737413857/you-are-so-darn-talented-i-get-so-excited">how he wants to be a good alpha to the pack</a></li></ul>
 
-*// Added some shit here //
+// Added some shit here //
 <b>Dick and Tim and Jay in some combination:</b>
 <p><b>DickTim</b></p><ul><li><b>Angst:</b>
-<a href="https://iphoenixrising.tumblr.com/post/167473398807/i-read-a-prompt-today-ive-already-forgiven-you">Forgive </a> |
+<a href="https://iphoenixrising.tumblr.com/post/167473398807/i-read-a-prompt-today-ive-already-forgiven-you">I've already forgiven you, but I won't make the same mistake twice</a> |
 <a href="https://archiveofourown.org/works/5643016/chapters/14058007">Effect</a> |
 <a href="http://iphoenixrising.tumblr.com/post/150342906532/plotthought-plot-thought-what-ifwhen-ras">Fallen</a> <a href="https://iphoenixrising.tumblr.com/post/150342906532/plotthought-plot-thought-what-ifwhen-ras#notes">(‘What if Dick didn’t catch Tim when he fell through the window’)</a>|
 <a href="https://iphoenixrising.tumblr.com/post/162888474732/i-was-honestly-expecting-tim-to-fight-back-more">Get wrecked Dick! (HC)</a> |
-<a href="https://iphoenixrising.tumblr.com/post/153110369697/its-angst-dick-is-still-trying-to-win">A NHFDB kind of 'verse</a> |
+<a href="https://iphoenixrising.tumblr.com/post/153110369697/its-angst-dick-is-still-trying-to-win">Tim moves on angst</a> |
 <a href="https://iphoenixrising.tumblr.com/post/157050006092/subdue">Subdue</a> |
-<a href="https://iphoenixrising.tumblr.com/post/183686448022/last-line-game">Last Line game</a> <br><b>Cold Reception (HCs): </b>
-<a href="https://iphoenixrising.tumblr.com/post/177643799452">Get Wrecked</a>,
-<a href="https://iphoenixrising.tumblr.com/post/179066223707/hi-can-you-expand-on-a-prompt-ive-been-musing">Dick!</a> </li>
+<a href="https://iphoenixrising.tumblr.com/post/183686448022/last-line-game">Last Line game</a> | <b>Cold Reception (HCs):</b>
+<a href="https://iphoenixrising.tumblr.com/post/177643799452">Too old to cry</a>,
+<a href="https://iphoenixrising.tumblr.com/post/179066223707/hi-can-you-expand-on-a-prompt-ive-been-musing">Get Wrecked</a> </li>
 <li><b>Misc Ficlets: </b>
 <a href="https://iphoenixrising.tumblr.com/post/152876721297/i-have-a-prompt-if-you-ever-feel-up-for-it-dick">The night the Flying Graysons Died</a> |
 <a href="https://iphoenixrising.tumblr.com/post/152249436787/what-are-your-feelings-on-what-happened-with">Tarantula (HC)</a> |
 <a href="https://iphoenixrising.tumblr.com/post/173978031202/hi-i-just-had-like-this-random-tim-drake-thought">Birthday, Dick &amp; Tim &amp; their parents (HC)</a> <br><b>NSFW: </b> <a href="https://iphoenixrising.tumblr.com/post/171543194567/for-400-followers">The Suit</a> (for 400 followers!) &amp;
 <a href="https://iphoenixrising.tumblr.com/post/160677857587/worth-the-wait">Worth the Wait</a> |
-<a href="https://iphoenixrising.tumblr.com/post/180737377147/i-read-an-au-where-someones-soulmate-mark-was-on">Soul Mark</a> </li>|<a href=”https://iphoenixrising.tumblr.com/post/190923336877/hey-we-havent-heard-anything-from-you-in-a-while”>Sentinel/Guide WIP</a>
+<a href="https://iphoenixrising.tumblr.com/post/180737377147/i-read-an-au-where-someones-soulmate-mark-was-on">Soul Mark</a> </li>|<a href="https://iphoenixrising.tumblr.com/post/190923336877/hey-we-havent-heard-anything-from-you-in-a-while">Sentinel/Guide WIP</a>
 <li><b>The BodySwap</b>
 <a href="https://iphoenixrising.tumblr.com/post/155058751432/is-there-any-chance-you-can-take-up-this-prompt">The Swap</a> &amp;
 <a href="https://iphoenixrising.tumblr.com/post/162298925182/body-swap-the-fallout">The Fallout</a> &amp;
@@ -91,21 +90,21 @@
 <a href="https://iphoenixrising.tumblr.com/post/152132770747/hey-i-just-want-to-start-off-with-saying-that-you">One</a> &amp;
 <a href="https://iphoenixrising.tumblr.com/post/152274617032/thank-you-for-taking-up-the-prompt-i-asked-for">Two</a> </li>
 <li><b>Detective!Dick AU: </b>
-<a href="https://iphoenixrising.tumblr.com/post/175096760187/detectivedick-red-hoodtim-au">Red Hood!Tim au</a> (for my babe @poison-basil) &amp;
+<a href="https://iphoenixrising.tumblr.com/post/175096760187/detectivedick-red-hoodtim-au">Red Hood!Tim au</a> (for my babe poison-basil) &amp;
 <a href="https://iphoenixrising.tumblr.com/post/175122731792/poison-basil-drew-this-for-iphoenixrising-for">art!</a> |
 <a href="https://iphoenixrising.tumblr.com/post/175492796887/i-feel-like-i-bother-you-with-how-much-i-send">Civillian!Tim au</a> </li>
 <li><b>Dom!Dick/sub!tim AU:</b>
-<a href="https://iphoenixrising.tumblr.com/post/181098211762/subtim-au">One</a> &amp;|<a href="https://iphoenixrising.tumblr.com/post/181634467462/hey-your-subtim-blew-me-away-the-caring-that">Sub!Tim SFW?</a> &amp;|<a href="https://iphoenixrising.tumblr.com/post/182491716662/just-wondering-no-pressure-whatsoever-but-are">Continuation?</a>|<a href="https://href.li/?https://archiveofourown.org/works/16997460/chapters/44138764">Part II on Ao3</a>|<a href="https://iphoenixrising.tumblr.com/post/188530212277/for-900-followers-subtim-iii">Part III</a>|<a href=”https://iphoenixrising.tumblr.com/post/189932706867/subtim-omake-superbats”>Sub!Tim Omake: Superbats</a> | <a href=”https://iphoenixrising.tumblr.com/post/189966665082/i-love-the-bruceclark-so-sweet-clark-is-just”>Ask</a> |<a href=”https://iphoenixrising.tumblr.com/post/611995741807886336/hiya-hun-i-hope-all-is-well-with-you-and-your”>and another</a> | <a href=”https://iphoenixrising.tumblr.com/post/188734966222/hiya-love-i-hope-youre-doing-well-i-was”>Bruce initially struggling</a> |<a href=”https://iphoenixrising.tumblr.com/post/188872327702/wip-challenge-subtim-edition”>Sub!Tim WIP challenge post</a> | <a href=”https://iphoenixrising.tumblr.com/post/188872608482/wip-challenge-subtim-editing”>Mostly NSFW WIPs</a>
+<a href="https://iphoenixrising.tumblr.com/post/181098211762/subtim-au">One</a> &amp;|<a href="https://iphoenixrising.tumblr.com/post/181634467462/hey-your-subtim-blew-me-away-the-caring-that">Sub!Tim SFW?</a> &amp;|<a href="https://iphoenixrising.tumblr.com/post/182491716662/just-wondering-no-pressure-whatsoever-but-are">Continuation?</a>|<a href="https://href.li/?https://archiveofourown.org/works/16997460/chapters/44138764">Part II on Ao3</a>|<a href="https://iphoenixrising.tumblr.com/post/188530212277/for-900-followers-subtim-iii">Part III</a>|<a href="https://iphoenixrising.tumblr.com/post/189932706867/subtim-omake-superbats">Sub!Tim Omake: Superbats</a> | <a href="https://iphoenixrising.tumblr.com/post/189966665082/i-love-the-bruceclark-so-sweet-clark-is-just">Ask</a> |<a href="https://iphoenixrising.tumblr.com/post/611995741807886336/hiya-hun-i-hope-all-is-well-with-you-and-your">and another</a> | <a href="https://iphoenixrising.tumblr.com/post/188734966222/hiya-love-i-hope-youre-doing-well-i-was">Bruce initially struggling</a> |<a href="https://iphoenixrising.tumblr.com/post/188872327702/wip-challenge-subtim-edition">Sub!Tim WIP challenge post</a> | <a href="https://iphoenixrising.tumblr.com/post/188872608482/wip-challenge-subtim-editing">Mostly NSFW WIPs</a>
 
 </li>
-<li><b>DickTim Week 2021</b><a href=”https://archiveofourown.org/works/32853994”>On Ao3</a> |
-<a href=”https://iphoenixrising.tumblr.com/post/657185758845796352/the-demon-you-know”>Day 1: Creature!Dick</a> |
-<a href=”https://iphoenixrising.tumblr.com/post/659192890140098560/hi-babe-i-absolutely-loved-all-of-your-dicktim”> Rambling about what happened after Creature!Dick</a> |
-<a href=”https://iphoenixrising.tumblr.com/post/657257316418273280/dicktimweek2021-day-2”>Day 2: Sad Time Loop, watch your feels</a> |
-<a href=”https://iphoenixrising.tumblr.com/post/657342051096117248/dicktim-week-day-3-aob-and-bdsm”>Day 3: AOB and BDSM with Alpha!Tim and Omega!Dick </a> |
-<a href=”https://iphoenixrising.tumblr.com/post/657433683390840832/dicktim-week-day-4-darkdick-and-vampiretim”>Day 4: Dark!Dick and Vampire!Tim. Warnings for captivity, torture, blood-letting, and missing Bruce</a> |
-<a href=”https://iphoenixrising.tumblr.com/post/657525412096851968/dicktim-week-2021-day-5-wingedtalon-tim-au”>Day 5: Winged Talon!Tim au. Warnings for violence, brainwashing, and injuries. </a> |
-<a href=”https://iphoenixrising.tumblr.com/post/657796194825830400/dicktim-week-day-6-truth-and-mutual-pining”>Day 6: Truth and Mutual Pining</a>
+<li><b>DickTim Week 2021</b><a href="https://archiveofourown.org/works/32853994">On Ao3</a> |
+<a href="https://iphoenixrising.tumblr.com/post/657185758845796352/the-demon-you-know">Day 1: Creature!Dick</a> |
+<a href="https://iphoenixrising.tumblr.com/post/659192890140098560/hi-babe-i-absolutely-loved-all-of-your-dicktim"> Rambling about what happened after Creature!Dick</a> |
+<a href="https://iphoenixrising.tumblr.com/post/657257316418273280/dicktimweek2021-day-2">Day 2: Sad Time Loop, watch your feels</a> |
+<a href="https://iphoenixrising.tumblr.com/post/657342051096117248/dicktim-week-day-3-aob-and-bdsm">Day 3: AOB and BDSM with Alpha!Tim and Omega!Dick </a> |
+<a href="https://iphoenixrising.tumblr.com/post/657433683390840832/dicktim-week-day-4-darkdick-and-vampiretim">Day 4: Dark!Dick and Vampire!Tim. Warnings for captivity, torture, blood-letting, and missing Bruce</a> |
+<a href="https://iphoenixrising.tumblr.com/post/657525412096851968/dicktim-week-2021-day-5-wingedtalon-tim-au">Day 5: Winged Talon!Tim au. Warnings for violence, brainwashing, and injuries. </a> |
+<a href="https://iphoenixrising.tumblr.com/post/657796194825830400/dicktim-week-day-6-truth-and-mutual-pining">Day 6: Truth and Mutual Pining</a>
 </li></ul>
 
 <b>DickTimJay</b><ul><li><b>SFW: </b>
@@ -116,7 +115,7 @@
 <a href="https://iphoenixrising.tumblr.com/post/147328018187/dont">"Don't!"</a> |
 <a href="http://iphoenixrising.tumblr.com/post/153005607427/thank-you-for-being-such-a-wonderful-author-just">Tim being Tim</a> |
 <a href="https://iphoenixrising.tumblr.com/post/156520448622/200-followers-prompt-fill">Childhood</a> (for 200 followers!) |
-<a href="https://iphoenixrising.tumblr.com/post/178434213702/jason-is-missing-all-of-his-shirts-how-would-he">Jason's Shirts (HC)</a> | <a href="https://iphoenixrising.tumblr.com/post/187614222557/you-know-i-really-love-how-badass-and-capable-tim">Boyfriends to the rescue!</a> | <a href="https://iphoenixrising.tumblr.com/post/188015048222/idk-i-cant-stop-thinking-abt-if-tim-lost-some-of">memory loss ask </a>|<a href=”https://iphoenixrising.tumblr.com/post/188120065342/idk-i-cant-stop-thinking-abt-if-tim-lost-some-of”>Missing memory, more ideas</a>
+<a href="https://iphoenixrising.tumblr.com/post/178434213702/jason-is-missing-all-of-his-shirts-how-would-he">Jason's Shirts (HC)</a> | <a href="https://iphoenixrising.tumblr.com/post/187614222557/you-know-i-really-love-how-badass-and-capable-tim">Boyfriends to the rescue!</a> | <a href="https://iphoenixrising.tumblr.com/post/188015048222/idk-i-cant-stop-thinking-abt-if-tim-lost-some-of">memory loss ask </a>|<a href="https://iphoenixrising.tumblr.com/post/188120065342/idk-i-cant-stop-thinking-abt-if-tim-lost-some-of">Missing memory, more ideas</a>
 <b>Soul Mark AU: </b>
 <a href="https://iphoenixrising.tumblr.com/post/175291068227">One</a> &amp;
 <a href="https://iphoenixrising.tumblr.com/post/175971065017/soulmate-thing-cont">Two </a> <a href="https://iphoenixrising.tumblr.com/post/186923705987/for-800-followers-soulmate-epilogue"> Soulmate au Epilogue for 800 Followers! (NSFW)</a> &amp;
@@ -147,21 +146,21 @@ Art: <a href="https://iphoenixrising.tumblr.com/post/181825883687/i-finally-figu
 <a href="https://iphoenixrising.tumblr.com/post/182236756422/i-recently-found-your-blog-and-promptly-read">Future</a> </li>
 
 <li><b>DamiTim<b>
-<a href=”https://archiveofourown.org/works/38998470/chapters/97549215”>Nurse Tim! Robin!Dami WIP on Ao3</a> | <a href=”https://iphoenixrising.tumblr.com/post/189874156062/babe-youve-been-so-quietwhy-do-i-feel-like”>Concept</a> | Alph!Dami/Alph!Jon/Omega!Tim<a href="https://iphoenixrising.tumblr.com/post/181634123867/ugh-just-imagine-jon-kent-crushing-on-tim">The original ask</a>|
+<a href="https://archiveofourown.org/works/38998470/chapters/97549215">Nurse Tim! Robin!Dami WIP on Ao3</a> | <a href="https://iphoenixrising.tumblr.com/post/189874156062/babe-youve-been-so-quietwhy-do-i-feel-like">Concept</a> | Alph!Dami/Alph!Jon/Omega!Tim<a href="https://iphoenixrising.tumblr.com/post/181634123867/ugh-just-imagine-jon-kent-crushing-on-tim">The original ask</a>|
 <a href="https://iphoenixrising.tumblr.com/post/182491665907/please-allow-me-to-say-thank-you-for-all-of-your">Tim &amp; Dami</a> |
-<a href=“https://iphoenixrising.tumblr.com/post/188015893767/omg-that-recent-omegatim-with-alpha-damien-hit”></a>
+<a href="https://iphoenixrising.tumblr.com/post/188015893767/omg-that-recent-omegatim-with-alpha-damien-hit"></a>
 </li>
 
 <li><b>Fic Rec: </b>
 <a href="https://iphoenixrising.tumblr.com/post/183280905972/on-the-clock">On the Clock by chibinightowl</a>
 </li></ul><b>JayTim</b> <ul><li><b>Misc:</b>
 <a href="https://iphoenixrising.tumblr.com/post/142439414967/sentence-meme-smut-innuendo-version">“For this,” he cracks his neck a little, “call me Robin instead.”</a> |
-<a href=”https://iphoenixrising.tumblr.com/post/616602218640130048/ok-but-how-will-jay-react-to-tim-waking-up-from-a”>Tim waking up from a nightmare about Jay killing him</a>|
+<a href="https://iphoenixrising.tumblr.com/post/616602218640130048/ok-but-how-will-jay-react-to-tim-waking-up-from-a">Tim waking up from a nightmare about Jay killing him</a>|
 <a href="https://iphoenixrising.tumblr.com/post/183703938482/reading-the-last-post-about-tim-gave-me-chills">700; JayTim vs NHFDB</a> |
 <a href="https://iphoenixrising.tumblr.com/post/182230497837/tim-seems-like-hed-say-dumb-shit-when-sex-is-more">Thinking</a> |
 <a href="https://iphoenixrising.tumblr.com/post/182648261742/tim-having-to-choose-between-jason-and-dick">I Choose You</a> |
 <a href="https://iphoenixrising.tumblr.com/post/174774195787/jaytim-and-knifeplay-yn-maybe-that-wicked-kris">Knife kink</a> |
-<a href="https://iphoenixrising.tumblr.com/post/152248482492/look-you-cannot-do-that-to-me-you-cant-just-have">Pit Rage (HC)</a>|<a href=”https://iphoenixrising.tumblr.com/post/626122753894957056/bottom-jason-todd-week-cam-boy-jason”>Bottom Jason Todd Week: Cam Boy Jason, JayTim</a>|<a href=”https://iphoenixrising.tumblr.com/post/626215787475156992/bottom-jason-todd-week-day-2-unwilling”> Bottom Jason Todd Week: Un/willing impregnation</a>|<a href=“https://iphoenixrising.tumblr.com/post/187090041127/jays-birthday-is-coming-up”>Jay's birthday NSFW</a></li>
+<a href="https://iphoenixrising.tumblr.com/post/152248482492/look-you-cannot-do-that-to-me-you-cant-just-have">Pit Rage (HC)</a>|<a href="https://iphoenixrising.tumblr.com/post/626122753894957056/bottom-jason-todd-week-cam-boy-jason">Bottom Jason Todd Week: Cam Boy Jason, JayTim</a>|<a href="https://iphoenixrising.tumblr.com/post/626215787475156992/bottom-jason-todd-week-day-2-unwilling"> Bottom Jason Todd Week: Un/willing impregnation</a>|<a href="https://iphoenixrising.tumblr.com/post/187090041127/jays-birthday-is-coming-up">Jay's birthday NSFW</a></li>
 <li><b>De-Aged Jay</b>(based on <a href="https://cearamorran.tumblr.com/post/162898781538/to-be-probably-continued-i-had-this-in-a-folder">fanart</a>):
 <a href="https://iphoenixrising.tumblr.com/post/168413221947/i-said-i-was-kind-of-going-on-a-hiatus-too-many">Ficlet</a> |
 <a href="https://iphoenixrising.tumblr.com/post/168847269747/oh-no-is-tim-in-the-de-agedau-actually">HC</a></li>
@@ -173,9 +172,9 @@ Art: <a href="https://iphoenixrising.tumblr.com/post/181825883687/i-finally-figu
 <a href="https://iphoenixrising.tumblr.com/post/158212797507/jaytim-praise-kink">Ficlet</a> |
 <a href="https://iphoenixrising.tumblr.com/post/179130026507/okay-i-blame-satire-please-for-the-fact-i">PodFic</a> (&amp; my take on a Gotham Accent) |
 <a href="https://iphoenixrising.tumblr.com/post/179468538672/hearing-your-praise-kink-out-loud-damn-i-dont">Heart-to-Motherfucking fist</a><li><b>Robinpile Praise Kink idea</b> |
-<a href=”https://iphoenixrising.tumblr.com/post/189229527967/i-just-had-a-thought-and-i-figured-i-should-share”>The initial ask</a> |
-<a href=”https://iphoenixrising.tumblr.com/post/638712118677585920/chippon-the-video-footage-of-his-last-few-fights”>Chip’s art</a> |
-<a href=”https://iphoenixrising.tumblr.com/post/671693704041545728/so-so-my-babe-worked-so-hard-to-get-more-out-of”>A snippet of the idea</a></li></li>
+<a href="https://iphoenixrising.tumblr.com/post/189229527967/i-just-had-a-thought-and-i-figured-i-should-share">The initial ask</a> |
+<a href="https://iphoenixrising.tumblr.com/post/638712118677585920/chippon-the-video-footage-of-his-last-few-fights">Chip’s art</a> |
+<a href="https://iphoenixrising.tumblr.com/post/671693704041545728/so-so-my-babe-worked-so-hard-to-get-more-out-of">A snippet of the idea</a></li></li>
 <li><b>Bad Idea: </b> (Space Salvagers AU):
 <a href="http://iphoenixrising.tumblr.com/post/136430137182/jaytim-space-salvagers-au-please-for-the-prompt">Ficlet</a> &amp;
 <a href="https://iphoenixrising.tumblr.com/post/160644068697/hey-i-was-reading-your-distraction-fic-again-and">HC</a> </li>
@@ -210,7 +209,7 @@ Art: <a href="https://iphoenixrising.tumblr.com/post/181825883687/i-finally-figu
 <a href="https://iphoenixrising.tumblr.com/post/144583859147">Two</a> &amp;
 <a href="https://iphoenixrising.tumblr.com/post/144611902587">Three</a>
 <br>
-<b>Supervillain Tim Drake:<a href=”https://iphoenixrising.tumblr.com/post/187590420412/so-im-re-reading-nhfdb-for-the-billionth-time-and”>Supervillain Tim Drake</a> | <a href=”https://iphoenixrising.tumblr.com/post/187590613957/ooohmy-brain-just-spat-another-idea-at-me”>All the Titans as supervillains</a></b></li></ul>
+<b>Supervillain Tim Drake:<a href="https://iphoenixrising.tumblr.com/post/187590420412/so-im-re-reading-nhfdb-for-the-billionth-time-and">Supervillain Tim Drake</a> | <a href="https://iphoenixrising.tumblr.com/post/187590613957/ooohmy-brain-just-spat-another-idea-at-me">All the Titans as supervillains</a></b></li></ul>
 <br><p><b><a href="https://iphoenixrising.tumblr.com/post/185328246127/masterlist-part-2">Masterlist Part 2!</a></b></p>
 Footer
 
