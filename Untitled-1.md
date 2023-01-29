@@ -64,7 +64,6 @@
 <a href="https://iphoenixrising.tumblr.com/post/182152733352/dude-dude-i-love-love-love-the-way-you-write-the">Thinking about a more dominant Alpha!Tim</a> and
 <a href="https://iphoenixrising.tumblr.com/post/179737413857/you-are-so-darn-talented-i-get-so-excited">how he wants to be a good alpha to the pack</a></li></ul>
 
-// Added some shit here //
 <b>Dick and Tim and Jay in some combination:</b>
 <p><b>DickTim</b></p><ul><li><b>Angst:</b>
 <a href="https://iphoenixrising.tumblr.com/post/167473398807/i-read-a-prompt-today-ive-already-forgiven-you">I've already forgiven you, but I won't make the same mistake twice</a> |
