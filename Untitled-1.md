@@ -90,7 +90,7 @@
 <a href="https://iphoenixrising.tumblr.com/post/152132770747/hey-i-just-want-to-start-off-with-saying-that-you">One</a> &amp;
 <a href="https://iphoenixrising.tumblr.com/post/152274617032/thank-you-for-taking-up-the-prompt-i-asked-for">Two</a> </li>
 <li><b>Detective!Dick AU: </b>
-<a href="https://iphoenixrising.tumblr.com/post/175096760187/detectivedick-red-hoodtim-au">Red Hood!Tim au</a> (for my babe poison-basil) &amp;
+<a href="https://iphoenixrising.tumblr.com/post/175096760187/detectivedick-red-hoodtim-au">Red Hood!Tim au</a> (for my babe <a href="https://poison-basil.tumblr.com/">poison-basil)</a> &amp;
 <a href="https://iphoenixrising.tumblr.com/post/175122731792/poison-basil-drew-this-for-iphoenixrising-for">art!</a> |
 <a href="https://iphoenixrising.tumblr.com/post/175492796887/i-feel-like-i-bother-you-with-how-much-i-send">Civillian!Tim au</a> </li>
 <li><b>Dom!Dick/sub!tim AU:</b>
